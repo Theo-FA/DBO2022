@@ -1,1 +1,1 @@
-Me leia
+Diretório de imagens
